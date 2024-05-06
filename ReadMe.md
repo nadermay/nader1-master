@@ -1,0 +1,1 @@
+# hello madame hela if ur reading this that mean u opend to check the code to make the weeb site work u need to put the bd_nader_.sql in the admin in my sql and thank you
